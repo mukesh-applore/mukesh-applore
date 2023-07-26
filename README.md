@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mukesh-applore
 - 👀 I’m interested in Technonology and programming. 
-- 🌱 I’m currently workig in Applore on a very crucial project.
+- 🌱 I’m currently workig at Applore Technology on a very crucial project.
 - 💞️ I’m looking to collaborate on a motivated team.
 - 📫 How to reach me ... just mail me mukesh.india9@gmaill.com
 
